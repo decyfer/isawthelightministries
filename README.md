@@ -17,7 +17,7 @@ Download [PDF 14.4 MB Latest Updated version: Feb.14, 2018](http://alphaomegabib
 
 ----
 
-Blog 글모음 내려받기 [PDF 23.1 MB, 341 페이지](https://raw.githubusercontent.com/decyfer/isawthelightministries/master/iSawTheLightMinistries-kr.pdf)
+Blog 글모음 내려받기 [PDF 22.3 MB, 333 페이지](https://raw.githubusercontent.com/decyfer/isawthelightministries/master/ISTLM-kr.pdf)
 
-마지막 업데이트 2018년 2월 17일 6:07 PM
+마지막 업데이트 2018년 2월 21일 12:19 AM
 
