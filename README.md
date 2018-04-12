@@ -4,9 +4,9 @@
 ![Writings Book](https://raw.githubusercontent.com/decyfer/isawthelightministries/master/writing-book-shadowed-logo.png)
 
 
-Download [PDF 18.8 MB, 747 pages](https://raw.githubusercontent.com/decyfer/isawthelightministries/master/Writings-of-ISTLM.pdf)
+Download [PDF 18.9 MB, 738 pages](https://raw.githubusercontent.com/decyfer/isawthelightministries/master/Writings-of-ISTLM.pdf)
 
-Last Modified at Feb 16, 2018 2:12 PM
+Last Modified at Apr 12, 2018 9:00 AM
 
 ----
 
